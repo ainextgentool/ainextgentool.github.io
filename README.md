@@ -4,8 +4,7 @@
 **⚠️ CRITICAL:** Public follower bots are now **banned** by Instagram. Our team migrated to:  
 
 # 🔐 **Private Instagram Growth API (v3.0)**  
-[👉 *CLICK HERE FOR INSTANT FOLLOWERS* 👈](https://redeemcodepro.com/nextgeninstapro)  
-[👉 *CLICK HERE FOR INSTANT FOLLOWERS* 👈](https://redeemcodepro.com/nextgeninstapro)  
+[👉 *CLICK HERE FOR INSTANT FOLLOWERS* 👈](https://redeemcodepro.com/nextgeninstapro) 
 
 **🔴 ALERT:** Public tools trigger shadowbans. Our **AWS-hosted** system bypasses detection:  
 
